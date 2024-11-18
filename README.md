@@ -8,7 +8,7 @@
 
 - 📝 I write some articles on [https://www.codexritik.blogspot.com](http://www.codexritik.blogspot.com)
 
-- 📫 How to reach me **ritik@peoplelinkvc.com**
+- 📫 How to reach me **ritik@instavc.com**
 
 - ⚡ **I am Self Learner😎**
 
